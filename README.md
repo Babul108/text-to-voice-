@@ -1,1 +1,1 @@
-![Screenshot_20250920_202728_Chrome](https://github.com/user-attachments/assets/f39b4779-895e-4d3e-93a0-8c7a8c83bff4)
+![Screenshot_20250920_202728_Chrome](https://github.com/user-attachments/assets/6529beba-d394-433a-8997-20cf7c4d5426)
